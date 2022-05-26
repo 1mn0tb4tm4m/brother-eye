@@ -1,0 +1,1 @@
+# Brother Eye is an all-seeing artificial intelligence orbiting the Earth. Originally created by Bruce Wayne to spy on other heroes to sate his distrust, it gained independence from its programming and unleashed the OMACs during the Infinite Crisis.
